@@ -2,7 +2,7 @@
 - 👀 I’m interested in making my website better and safer
 - 🌱 I’m currently learning how to be a better person
 - 💞️ I’m looking to collaborate on either my website, or on discord
-- 📫 How to reach me: Friend "gfxgamer" on discord and we'll talk, or reach out to "support@gmail.com" and a member will alert me
+- 📫 How to reach me: Friend "gfxgamer" on discord and we'll talk, or reach out to "support@whup.cloud" and a member will alert me
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I used to be a game developer, but after realising it was too hard i moved onto web-development
 
